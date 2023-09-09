@@ -1,1 +1,1 @@
-List of largest companies in the United Kingdom. 2022 Fortune list
+This list displays all 18 British companies in the Fortune Global 500, which ranks the world's largest companies by annual revenue. The figures below are given in millions of US dollars and are for the fiscal year 2021. Also listed are the headquarters location, net profit, number of employees worldwide and industry sector of each company.
